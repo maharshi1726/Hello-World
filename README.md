@@ -1,1 +1,2 @@
 # hello-world
+# My goal is to making a powerful online presence for my company or personal brand, showing my goods and services or portfolio to draw in clients or business possibilities. Making sure that users have an easy time navigating my website and finding the information they need might be my top priority.
